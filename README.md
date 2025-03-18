@@ -1,4 +1,4 @@
-# IPTV Yetkili Tivigo Bayi, Kalite IPTV
+# Tivigo Bayi, Yetkili Satıcı Kalite IPTV
 ## <a href="https://kaliteiptvtr5.com/" title="beinsports">IPTV SATIN ALMAK İÇİN TIKLA</a>
 ## <a href="https://t.me/kaliteiptv2" title="beinsports">TELEGRAM KANALIMIZ</a>
  <a href="https://kaliteiptvtr5.com/" title="beinsports">
